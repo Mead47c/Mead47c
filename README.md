@@ -40,4 +40,4 @@ Currently working on personal projects that reflect my growth, curiosity, and de
 ## 🔗 Let's Connect!
 
 📧 **Email:** Mead.alrwuili@outlook.com  
-💼 **LinkedIn:** [Click here to view my profile](https://www.linkedin.com/in/mead-al-ruwaili-946589333/)
+💼 **LinkedIn:** [Mead AL-Ruwaili](https://www.linkedin.com/in/mead-al-ruwaili-946589333/)
